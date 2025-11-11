@@ -1,2 +1,2 @@
-# cn
-Photography in CDMX
+# Christian Najera
+Professional Photographer in CDMX
